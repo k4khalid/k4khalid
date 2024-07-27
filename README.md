@@ -4,7 +4,7 @@
 
 1st year ʿĀlimiyyah student
 
-Interests: data science, health, trading, reading, philosophy. chess, Islam
+Interests: data science, Islam, health, trading, reading, philosophy, chess
 
 
 
