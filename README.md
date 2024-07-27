@@ -1,6 +1,11 @@
-### Hi there 👋
+### Hi 👋
 
-(Will fill this in at a later time)
+2nd year Edinburgh Maths & CS student
+1st year ʿĀlimiyyah student
+
+Interests: data science, health, trading, reading, philosophy. chess, Islam
+
+
 
 
 <!--
